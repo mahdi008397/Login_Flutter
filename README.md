@@ -14,9 +14,9 @@ In IOS Frame
 
 Support us on Instagram. ❤️
 
-Programmer: [M_programmer_H](https://instagram.com.com/M_programmer_H)
+Programmer: [M_programmer_H](https://instagram.com/M_programmer_H)
 
-Ui/Ux: [amir_aiden3](https://instagram.com.com/Aidendesigner)
+Ui/Ux: [amir_aiden3](https://instagram.com/Aidendesigner)
 
 ## Links
 
